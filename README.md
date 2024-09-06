@@ -2,7 +2,7 @@
 - 👀 I’m interested in everything to do with computers
 - 🌱 I’m currently learning CS in college
 - 💞️ I’m looking to collaborate on anything beginner friendly
-- 📫 How to reach me: zhforge@gmail.com
+- 📫 How to reach me: thezachcarter1449@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I love factory games! Factorio is by far my all-time favorite
 
